@@ -16,9 +16,9 @@
 ## 
 https://app.gather.town/app/cF6hWWXGnyx9slp3/7th-resonance
 
-
+https://www.news1.kr/articles/?4429118
 
 ## 개인 영역
 https://app.gather.town/app/gXyZyT2gXxHKgadY/My%20Office
 
-ㅈ
+
